@@ -4,7 +4,7 @@ Welcome to joining in my Organization！
 We will update our Repositories no sooner!
 Follow us and have fun!
 
-![image](https://user-images.githubusercontent.com/72860784/170857585-bfeae271-fa0a-4b14-a9a7-48e0bad2b9d7.png)
+![2](https://user-images.githubusercontent.com/72860784/170857809-e559c712-956f-4f03-b873-bb7c26898a5d.jpg)
 
 
 <!--
